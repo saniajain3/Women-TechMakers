@@ -1,2 +1,2 @@
 # Women-TechMakers
-Task round
+As my study shows, women account only about 17% of the total workforce in Technology Domain according to this survey. Women tend to take up more traditional roles such as Human Resource, Designing and Arts, Medicine etc. As technology improves and new breakthroughs are achieved, women should be encouraged to join this booming field as it can significantly improve the quantity and quality of the workforce in this domain. As women take up more Technology focussed job roles, it will also make them more skilled and capable of leading the technology boom from the forefront.
